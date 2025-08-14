@@ -9,4 +9,4 @@ At Energy T&S Ltd, we believe in empowering individuals who are passionate about
 
 ####  Opportunities Available
 
-While we currently have no open positions, we welcome speculative applications from experienced professionals and early-career innovators alike. Submit your resume to m.taoumi@energysltd.net — we’ll keep your profile on file and reach out as soon as a matching opportunity becomes available.
+While we currently have no open positions, we welcome speculative applications from experienced professionals and early-career innovators alike. Submit your resume to m.taoumi@energytsltd.net — we’ll keep your profile on file and reach out as soon as a matching opportunity becomes available.
