@@ -6,7 +6,7 @@ The company Energy Transitions & Strategies Limited (Energy T&S Ltd ) aims to be
 
 #### Contact
 
-Email: contact@energysltd.com\
+Email: m.taoumi@energysltd.net\
 Phone: +971 56 166 5553\
 Location: Masdar City, Abu Dhabi, United Arab Emirates
 
